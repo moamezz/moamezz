@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @moamezz
+- 👀 I’m interested in hacks&coding
+- 🌱 I’m currently learning coding
+- 💞️ I’m looking to collaborate on idk
+- 📫 How to reach me discord:moæmo#1337
